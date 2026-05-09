@@ -12,5 +12,5 @@ ignore this its for shig:<br><br><br><br><br>
 <br>
 <img src="https://github.com/user-attachments/assets/c09c3954-789f-4bc8-8f24-c91ce1a57083" width="249" height="auto"/>
 <br>
-<img src="https://github.com/user-attachments/assets/3d66f152-dbe6-4e18-bc6b-222c7db3131b" width="120" height="auto"/> ⠀<img src="https://github.com/user-attachments/assets/bbce067f-50f0-449c-b204-ba8de3bb6e6a" width="120" height="auto" />
+<img src="https://github.com/user-attachments/assets/3d66f152-dbe6-4e18-bc6b-222c7db3131b" width="119" height="auto"/> ⠀<img src="https://github.com/user-attachments/assets/bbce067f-50f0-449c-b204-ba8de3bb6e6a" width="119" height="auto" />
 </h5>
