@@ -19,7 +19,7 @@ ignore this its for shig:<br><br><br><br><br>
 
 <img src="https://github.com/user-attachments/assets/fda957fc-4583-4510-bad7-7694c497921c" width="123" height="auto"/>  <img src="https://github.com/user-attachments/assets/009950d1-fad6-40b7-a9d6-86551519ed24" width="123" height="auto"/>
 <br><br>
-<img src="https://komarev.com/ghpvc/?username=deepaffection&color=000000&plastic&label=⠀DEATH+COUNT⠀:&base=0"> ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img src="https://github.com/user-attachments/assets/acde22eb-adcd-4741-a08b-f669d4d09e3d" width="10" height="auto" title="Ponytown Award" />
+<img src="https://komarev.com/ghpvc/?username=deepaffection&color=000000&plastic&label=⠀DEATH+COUNT⠀:&base=0"> ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img src="https://github.com/user-attachments/assets/acde22eb-adcd-4741-a08b-f669d4d09e3d" width="10" height="auto" title="Ponytown Award" />
 
 
 </h5>
