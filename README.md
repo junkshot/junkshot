@@ -13,8 +13,8 @@ ignore this its for shig:<br><br><br><br><br>
 <img src="https://github.com/user-attachments/assets/c09c3954-789f-4bc8-8f24-c91ce1a57083" width="249" height="auto"/>
 <br>
 <a href="https://lordkira.straw.page/"><img src="https://github.com/user-attachments/assets/3d66f152-dbe6-4e18-bc6b-222c7db3131b" width="119" height="auto"/></a> ⠀<a href="https://discordid.netlify.app/?id=801889770790846514"><img src="https://github.com/user-attachments/assets/bbce067f-50f0-449c-b204-ba8de3bb6e6a" width="119" height="auto" /></a>
-<br>
-<img src="https://github.com/user-attachments/assets/309858bd-8b4c-48d0-8122-d12fef020f6e" width="252" height="2" />
+<br><br>
+<img src="https://github.com/user-attachments/assets/30ecaeaa-bafd-47d3-999b-7d3429b5abd6" width="252" height="auto" align="center"/>
 <br>
 
 <img src="https://github.com/user-attachments/assets/fda957fc-4583-4510-bad7-7694c497921c" width="123" height="auto"/>  <img src="https://github.com/user-attachments/assets/009950d1-fad6-40b7-a9d6-86551519ed24" width="123" height="auto"/>
